@@ -1,4 +1,4 @@
-### Hi there 👋 I'm ken😎🤗
+### Hi there 👋 I'm ken AJ😎🤗
 
 <!--
 **EJEnyero-things/EJEnyero-things** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
